@@ -1,5 +1,5 @@
 - 👋 Hi, I’m ADEBIYI FEYISAYO JANET.
-- 👀 I’m interested in EVERYONE'S GROWTH.
+- 👀 I’m interested in YOUR GROWTH.
 - 🌱 I’m currently learning HOW TO TAKE YOU AWAY FROM YOUR STATUS QUO.
 - 💞️ I’m looking to collaborate with you, to help you.
 - 📫 How to reach me fragranceofchrist.me|08084611310|ShaYor24.
